@@ -1,5 +1,5 @@
 # AV1
-[Slides De Turismo](https://www.canva.com/design/DAF9XMO1rWg/Y1sCTJrkME2rBGbMKcyiHA/edit?utm_content=DAF9XMO1rWg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+[Slides De Turismo com inovação 4.0](https://www.canva.com/design/DAF9XMO1rWg/Y1sCTJrkME2rBGbMKcyiHA/edit?utm_content=DAF9XMO1rWg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 ### Esses slides foram usados para a minha apresentação sobre turismo
 
